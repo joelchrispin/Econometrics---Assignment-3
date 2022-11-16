@@ -1,1 +1,1 @@
-# Econometrics---Assingment-3
+# Econometrics---Assignment-3
